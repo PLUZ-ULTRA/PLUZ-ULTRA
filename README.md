@@ -22,4 +22,5 @@
 - Pls pls don't flirt w/ me or any sexual jokes unless ur from my fg brochacho, i WILL NOT flirt back nor will make the same jokes. I also have a loving gf, losers 💗 /pos
 - See me sitting w/ my friends? Likely on vc w/ em, but ff to still sit w/ us :) just ask me first! especially if ur a friend they don't know abt :(
 - VERY VERY ON AND OFF!!! I can be on pt everyday OR offline for over a month. If you do want to get closer, ask 4 my discord. First rule still applies, I don't initiate convos very often :(
+- I can very easily swap fandoms and phases on some ocassions, if I stop showing up in a specific area thats prob cuz my main interest is elsewhere (me moving from marvel to mha. my marvel gh oomfs hey.)
 </div>
