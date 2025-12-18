@@ -24,3 +24,6 @@
 - VERY VERY ON AND OFF!!! I can be on pt everyday OR offline for over a month. If you do want to get closer, ask 4 my discord. First rule still applies, I don't initiate convos very often :(
 - I can very easily swap fandoms and phases on some ocassions, if I stop showing up in a specific area thats prob cuz my main interest is elsewhere (me moving from marvel to mha. my marvel gh oomfs hey.)
 </div>
+
+[![image-2025-12-18-185927953.png](https://i.postimg.cc/VvCp7sQt/image-2025-12-18-185927953.png)](https://postimg.cc/FkhTz4KF)
+us core
