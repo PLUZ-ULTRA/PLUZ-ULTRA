@@ -23,6 +23,7 @@
 - See me sitting w/ my friends? Likely on vc w/ em, but ff to still sit w/ us :) just ask me first! especially if ur a friend they don't know abt :(
 - VERY VERY ON AND OFF!!! I can be on pt everyday OR offline for over a month. If you do want to get closer, ask 4 my discord. First rule still applies, I don't initiate convos very often :(
 - I can very easily swap fandoms and phases on some ocassions, if I stop showing up in a specific area thats prob cuz my main interest is elsewhere (me moving from marvel to mha. my marvel gh oomfs hey.)
+- If you ever want to find me in a fandom area, I'm almost always by a tree! Tree spots r my comfort areas
 </div>
 
 [![image-2025-12-18-185927953.png](https://i.postimg.cc/VvCp7sQt/image-2025-12-18-185927953.png)](https://postimg.cc/FkhTz4KF)
