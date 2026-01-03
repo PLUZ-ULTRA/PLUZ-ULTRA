@@ -16,13 +16,11 @@
 <div align="center">
 <strong> PT INFO </strong>
   
-- I'm not an interact first kind of guy, YOU have to interact w/ me first sadly. Sorry to be that kinda guy! ff to sit w/ me
-- Regarding ships, yes I mainly ship bkdk, tgck, YES I also like izuocha, tddk, or any pairing of my ponies! pls sit w/ me bro i get very comforted when sat around brah
-- Pls pls don't flirt w/ me unless ur from my fg brochacho, i WILL NOT flirt back nor will make the same jokes. I also have a loving gf, losers 💗 /pos
-- See me sitting w/ my friends? Likely on vc w/ em, but ff to still sit w/ us :) just ask me first! especially if ur a friend they don't know abt :(
-- VERY VERY ON AND OFF!!! I can be on pt everyday OR offline for over a month. If you do want to get closer, ask 4 my discord. First rule still applies, I don't initiate convos very often :(
-- I can very easily swap fandoms and phases on some ocassions, if I stop showing up in a specific area thats prob cuz my main interest is elsewhere (me moving from marvel to mha. my marvel gh oomfs hey.)
-- If you ever want to find me in a fandom area, I'm almost always by a tree! Tree spots r my comfort areas
+- I sit near trees most of the time, please do not be afraid to interact with me or sit, only ask me if you catch me with others.
+- Don't flirt with me, I am taken. I'm also not weird in that freaky way, so if you do make those jokes, I likely won't make them back
+- Very online but I can be very offline, if you want to be in contact, my discord is "xarvc."
+- I am a very closed off guy on pony town, I don't like to initiate interactions unless I know you're alone or you're okay with it. So if you want to interact with me, don't wait for me to walk up to you. My only sign of interaction will be from crowns or signing atabooks
+- I'm sorry if I seem too energetic or sometimes I might seem rude, I have a very inconsistent personality
 </div>
 
 [![image-2025-12-18-185927953.png](https://i.postimg.cc/VvCp7sQt/image-2025-12-18-185927953.png)](https://postimg.cc/FkhTz4KF)
