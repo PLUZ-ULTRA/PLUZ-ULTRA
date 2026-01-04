@@ -1,4 +1,5 @@
-![](https://komarev.com/ghpvc/?username=PLUZ-ULTRA&color=a8430c&style=for-the-badge&label=⌗+extras&base=19)
+![](https://komarev.com/ghpvc/?username=PLUZ-ULTRA&color=a8430c&style=for-the-badge&label=⌗+extras&base=18
+)
 
 
 ![](https://i.postimg.cc/PrhmHCYL/Untitled1323-20251217162804.png)
