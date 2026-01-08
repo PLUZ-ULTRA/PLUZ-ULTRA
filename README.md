@@ -8,7 +8,7 @@
   
   📚  syc / stink !! EN/ID
  
-  ╰╮00﹒he they \ 16
+  ╰╮00﹒he they genderfluid \ 16
   
   ⊂⊃ under 13 dni unless i int first﹕b <3 , w , e , z , s , l , v , k◞ 
 
