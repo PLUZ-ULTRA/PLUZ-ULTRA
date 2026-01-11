@@ -10,7 +10,7 @@
 
 𓈒ㅤ　osdd sys . be mindful !　𓏏𓏏　
   </div>
-
+<img width="732" height="52" alt="image" src="https://github.com/user-attachments/assets/b805d398-1a72-4e26-8d9c-01c210187058" />
 <div align="center">
 <strong> PT INFO </strong>
   
