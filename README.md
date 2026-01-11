@@ -1,5 +1,5 @@
 <div align="center">
-![shadow rouge gif](https://64.media.tumblr.com/d56a338249ff5e076deec0f6267bd0a0/52ccef36b2d3dccf-b5/s400x600/45487ca7d8e8fd2c73a18cb19bfd313b6031f1e9.gifv)
+  ![](https://64.media.tumblr.com/d56a338249ff5e076deec0f6267bd0a0/52ccef36b2d3dccf-b5/s640x960/81895d6b5bc0c0f0703bfa35dce46c8d4f3f5e4b.gifv) 
 
   
   📚  syc / stink !! EN/ID
