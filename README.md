@@ -1,5 +1,6 @@
 <div align="center">
 <img width="400" height="225" alt="image" src="https://64.media.tumblr.com/d56a338249ff5e076deec0f6267bd0a0/52ccef36b2d3dccf-b5/s400x600/45487ca7d8e8fd2c73a18cb19bfd313b6031f1e9.gifv" />
+
   
   💥  syc / stink !! EN/ID
  
