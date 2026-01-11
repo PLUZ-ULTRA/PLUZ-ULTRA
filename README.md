@@ -1,4 +1,7 @@
-<div align="center">
+<img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/c0785e61-a7d9-40a1-b57c-5f8b9c8cf500" /><img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/8b33ac5a-4c2c-46ad-a981-b10c6adc3b2a" /><div align="center">
+  <img width="400" height="225" alt="image" src="https://github.com/user-attachments/assets/e8a1231a-5707-4a1d-a529-a9c4ee142b63" />
+
+
   all a wip
 
   
